@@ -42,7 +42,7 @@ I'm passionate about building practical **Machine Learning solutions**, analyzin
 
 ## 📫 Contact
 
-💼 LinkedIn: [[Your LinkedIn]](https://www.linkedin.com/in/ahmed-moawad-8160a6383?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+💼 LinkedIn: [[My LinkedIn]](https://www.linkedin.com/in/ahmed-moawad-8160a6383?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 ---
 
